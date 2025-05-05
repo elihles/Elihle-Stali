@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Elih Stali
+# 👋 Hi there, I'm Elihle Amahle  Stali
 
 🎓 I'm a BCom Computer Science & Information Systems student at Nelson Mandela University (NMU),  
 🏆 An award-winning innovator, and  
